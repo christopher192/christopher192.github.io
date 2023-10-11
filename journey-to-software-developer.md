@@ -28,4 +28,4 @@ Other journey continue.
 
 As I reflect upon this journey, I can't help but recognize that it's been a path filled with both bitterness and joy. In my 30s, I found myself burdened by an accumulation of negative energy that had quietly taken root during my younger years. It was at this point that I realized it was time to embark on a journey of self-healing.
 
-##### Keep Coding, Beliving and Begining My Self-Healing Journey
+##### Keep going, beliving and begining my self-healing journey
